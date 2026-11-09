@@ -1,1 +1,0 @@
-https://pl.wikipedia.org/wiki/Wzorzec_projektowy_(informatyka)
